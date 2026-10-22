@@ -1,2 +1,2 @@
 # KMAX
-Premium staffing and Quality Manpower Solutions 
+Workforce and Manpower Solutions Pvt Ltd 
